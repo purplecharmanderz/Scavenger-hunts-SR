@@ -5,3 +5,4 @@ to download the saves, simply copy and paste the .sav file to C:\users\(user)\Ap
 
 
 the first map i have ready to download has a series of 56 briar ornaments hidden around, 57 if the lab one didnt phase out of existence like it appeared to. if you have questions, you can find me on the slime rancher reddit discord or the slime rancher wiki discord.
+https://docs.google.com/document/d/1E03_SzUJHd7S10U-hEjcTAp62UMiRgYqkcIMckESpds/edit?usp=sharing a list of ornament counts in each zone for map 1.
